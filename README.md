@@ -1,7 +1,7 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Nurin Hazwani
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is wani
 =====================================================================================================================================
 
-* 🌍  I'm based in Malaysia
+* 🌍  I'm based in Johor Bharu, Malaysia
 * ✉️  You can contact me at [nurinhazwani@graduate.utm.my](mailto:nurinhazwani@graduate.utm.my)
 * 🧠  I'm learning bachelor in computer science (computer and graphics multimedia software) with honours
 * ⚡  I'm actually really into photography and editing and i'm pro on it.
